@@ -1,1 +1,1 @@
-# Madule-5-impact-of-AI-
+# Madule-5-Applied_AI
